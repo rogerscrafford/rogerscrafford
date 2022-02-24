@@ -4,7 +4,7 @@
   I succeed more often than not.
 
 - I’m looking for first readers for the fiction I write. These usually take the form of contemporary mystery/crime.
-  I can usually be reached here: roger [at] scrafford [dot] com
+  If you're remotely interested, you can usually reached me here: roger [at] scrafford [dot] com
 
 <!---
 rogerscrafford/rogerscrafford is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
