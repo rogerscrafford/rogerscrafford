@@ -3,7 +3,8 @@
   The goal is to make them play better than when they came from the builder.  
   I succeed more often than not.
 
-- I’m looking for first readers for the fiction I write. These usually take the form of contemporary mystery/crime.
+- I’m also looking for first readers for the fiction I write.  
+  These usually take the form of contemporary mystery/crime.  
   If you're remotely interested, you can usually reached me here: roger [at] scrafford [dot] com
 
 <!---
